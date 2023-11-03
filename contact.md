@@ -1,1 +1,1 @@
-Contact information here
+hirw1701@mylaurier.ca

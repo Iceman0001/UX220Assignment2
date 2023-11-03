@@ -1,1 +1,1 @@
-About page
+2nd year student at Laurier.
