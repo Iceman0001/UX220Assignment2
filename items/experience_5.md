@@ -2,8 +2,8 @@
 1) What was it that you did?
 Bring out products of the freezer.
 
-2) When did you do it?
-2022.
+2) When did you do it?2022.
+
 
 3) What was good about it?
 Store discounts.
